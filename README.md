@@ -37,9 +37,6 @@ Email Me 👉 ✉️ soaibkhan92275@gmail.com For Collaboration/Project or Anyth
 ### ✍️ Random Dev Quote
 ![](https://quotes-github-readme.vercel.app/api?type=vetical&theme=tokyonight)
 
-### 🔝 Top Contributed Repo
-![](https://github-contributor-stats.vercel.app/api?username=soaib-khan&limit=5&theme=dark&combine_all_yearly_contributions=true)
-
 <img src="https://github.com/Anmol-Baranwal/Cool-GIFs-For-GitHub/assets/74038190/9d0fd0c4-5c7f-4122-b884-64a1e1685d2d" width="500">
 <br><br>
 
