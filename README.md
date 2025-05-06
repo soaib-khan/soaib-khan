@@ -4,7 +4,7 @@ A passionate Ai/Ml Engineer || DevOps Engineer ||
 
 Email Me 👉 ✉️ soaibkhan92275@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
-    🔭 I’m currently working on: Enter your project info here
+    🔭 I’m currently working on: My learning And Making project
     🌱 I’m currently learning: tech...
     👯 I’m looking to collaborate .
     💬 Ask me about: Collaboration, Tech Support
