@@ -1,6 +1,6 @@
 💫 Hi 👋, I'm Soaib Khan
 
-A passionate Ai/Ml Engineer || DevOps Engineer ||
+A passionate Ai/Ml Engineer || AI & ML Engineer ||
 
 Email Me 👉 ✉️ soaibkhan92275@gmail.com For Collaboration/Project or Anything Else. 😊😊
 
