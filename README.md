@@ -14,7 +14,7 @@ Email Me 👉 ✉️ soaibkhan92275@gmail.com For Collaboration/Project or Anyth
 
 
 ## 🌐 Socials:
-[![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/soaib.akhter.921/) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/the_soaib_ofcl/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/soaib-khan-1524292b8) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:soaibkhan92275@gmail.com) 
+[![Discord](r=white)](_un_known_user_) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/the_soaib_ofcl/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/soaib-khan-1524292b8) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:soaibkhan92275@gmail.com) 
 
 <img src="https://user-images.githubusercontent.com/74038190/212749447-bfb7e725-6987-49d9-ae85-2015e3e7cc41.gif" width="500">
 <br><br>
